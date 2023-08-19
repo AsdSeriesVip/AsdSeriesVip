@@ -1,4 +1,4 @@
-### Hi there 👋
+### HI BRO | IM ÁD SẺRIES VIP
 
 <!--
 **AsdSeriesVip/AsdSeriesVip** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
